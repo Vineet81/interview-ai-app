@@ -50,5 +50,5 @@ Contact
 
 Created by Vineet Saini
 
-For questions or help, please raise an issue or contact saini.vineet784@gmail.com.
+For questions or help, please raise an issue or contact : [Email:] (saini.vineet784@gmail.com)
 
